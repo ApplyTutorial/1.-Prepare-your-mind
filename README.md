@@ -1,1 +1,1 @@
-# 1.-Prepare-your-mind
+# 1.Prepare your mind
